@@ -1,3 +1,3 @@
 # BWD-rem.week.IM.JD
 Rem
-goeiendag
+goeiendag van Pater
